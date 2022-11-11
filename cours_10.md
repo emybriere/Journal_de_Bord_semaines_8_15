@@ -2,7 +2,7 @@
 ## Retour sur la visite de SidLee et PixMob
 
 ### Intérêt
-Laquelle des conférences as-tu préféré et pourquoi? (2 à 3 lignes) 
+J'ai préféré la visite de Sidlee car la présentation était mieux organiser et il parlait plus en détail de leurs projets et ensuite j'ai bien aimé visiter leur studio et de voir comment leur place et organiser et comment il travailler aussi qu'ils ont parler des stage étudiant possible. 
 
 ### Travail
-Te verrais-tu travailler dans une des deux entreprises? Si oui, laquelle et pour quelle raison? Si non, pourquoi? (2 à 3 lignes)
+Je me vois plus traviller pour SidLee 
